@@ -1,8 +1,9 @@
 {
-  "name": "raj-graduation",
+  "name": "raj-graduation-vuepress",
   "version": "1.0.0",
-  "description": "Raj - Graduation: The End of Illusions",
+  "description": "The Raj materials. Graduation: The End of Illusions",
   "main": "index.js",
+  "repository": "https://github.com/wdporter/graduation-vuepress.git",
   "directories": {
     "doc": "docs"
   },
@@ -11,7 +12,7 @@
     "docs:dev": "vuepress dev docs",
     "docs:build": "vuepress build docs"
   },
-  "author": "Raj aka Jesus",
+  "author": "Raj aka Jesus via Paul Tuttle",
   "license": "ISC",
   "devDependencies": {
     "@vuepress/plugin-back-to-top": "^1.8.0",
