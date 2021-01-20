@@ -1,6 +1,6 @@
 ---
 title: 2nd March, 1991  
-dayOfWeek: Monday
+dayOfWeek: Saturday
 prev: /1991-2-25/
 next: /1991-3-8/
 ---

@@ -96,7 +96,7 @@ The ego does.
 The definitions do.
 
 If you insist upon seeing yourself as a three-dimensional entity speaking with me, a Fourth-dimensional Individuality, then you will have yourself misplaced. 
-And as you are finding, as we speak and I bluntly tell you the truth, you seem to find yourself sitting between me and your sidekick — the private, ego sense of self, the *giver *of definitions — and you feel like you are the rope in a tug-of-war. 
+And as you are finding, as we speak and I bluntly tell you the truth, you seem to find yourself sitting between me and your sidekick — the private, ego sense of self, the *giver* of definitions — and you feel like you are the rope in a tug-of-war. 
 That is exactly why I have pointed out to you the necessity of staying in touch with me *and* being aware that the fact that the apparent[^1] communication is occurring, demonstrates the fact that you are Here with me, that you are Fourth-dimensional Individuality, also, and not a three-dimensional entity in the middle of a third-dimension being the relayer of Truth, as it were.
 
 *Grasping the meaning of Truth does not improve your ability to define your world well*. 

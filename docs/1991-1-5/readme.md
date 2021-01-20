@@ -45,7 +45,7 @@ And when you are feeling the Peace of your Being, as you are right now, it is ob
 
 Now, I encourage you to pay more attention when you are doing the private conversations, because when you are doing them, you are also experiencing this fulfillment, this congruence. 
 But you have not gleaned from it its full benefit because you have not been aware of the fact that it has been you standing as the Door, and *as* the Door, being the presence of the Voice for Truth which constitutes your real conscious experience of Being. 
-You have seen it as a pleasant side-effect, you might say, of something else [^1] which is Real that is going on, rather  than the realness of You.
+You have seen it as a pleasant side-effect, you might say, of something else[^1] which is Real that is going on, rather  than the realness of You.
 
 If you will pay attention, and if you will accept the fact that the experience of fulfillment you are having is an experience of congruence with your Self, you will realise that the integrity of it hasn’t been derived from me and *not* from you. 
 And because it constitutes a real experience of You, there is even less reason for you to release it at the end of the last conversation [of the day] as though now all there
@@ -65,7 +65,7 @@ The key is whether you are placing your attention at the threshold of Centrednes
 Mind you, that ‘threshold of stimulation’ only seems to have meaning relative to a body which, in itself, has the capacity to be *sensitive*, the capacity to be aware — something which the body does not have, simply because it is the visibility and the tangibility of the expression of Meaning which is being experienced as a result of Knowing.
 
 So, do not open your eyes with trepidation because of your so-called experiential and electronic knowledge that visual stimuli constitute a real threat or distraction to Centredness. 
-It is not true, any more than activity in the world such as happened when Chris came into the room — and even is happening at this very moment [^2] — is distracting to and interferes with your ability to stand at and as the Door. 
+It is not true, any more than activity in the world such as happened when Chris came into the room — and even is happening at this very moment[^2] — is distracting to and interferes with your ability to stand at and as the Door. 
 It only seems to when you *think* and come to the conclusion that it does, and then refrain from expressing the desire to Know which constitutes the giving of permission for the Knowing to occur.
 
 Again, as I said, all of the essential elements are already under your belt as actual experience, with which you are completely at ease. 
